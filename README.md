@@ -1,1 +1,1 @@
-Lessons 1-5 completed and pushed
+Lessons 1-7 completed and pushed
